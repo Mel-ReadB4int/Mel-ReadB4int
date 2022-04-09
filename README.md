@@ -5,7 +5,7 @@
 - **He/they** + neos (pls dont use she/her on me ty) // ~~Transmasc~~
 - i have TD so pls respect my boundaries ^^
 
-### 💻 Quick BYI
+### 💻 BYI
 - i use caps and swear a lot
 - i'm also pretty childish and shy towards new ppl
 - I'm usually at the jojo area in the 18+ and safe server most of the time so feel free to int! i love making new friends^^
