@@ -4,6 +4,7 @@
 - you may call me crumb or mel !
 - **He/they** + neos (pls dont use she/her on me ty) // ~~Transmasc~~
 - i have TD so pls respect my boundaries ^^
+- green name/friend = you can ignore my td/srs
 
 ### 💻 BYI
 - i use caps and swear a lot
@@ -16,6 +17,7 @@
 - i use 'guys','bro' and 'girl' in a gender neutral way
 - pls use tone tags around me if possible
 - **do not vent to me.** i have my own problems to deal with (unless your my friend)
+- if you dislike and of my kins & comforts feel free to hide me :>
 
 ### 👾 DNI :D
 -  homophobic, biphobic, transphobic, lesbophobic, panphobic + etc.
@@ -38,7 +40,7 @@
 - mitski fans/fandom ily guys
 
 ### 💖 Irls !
-### ✦  i dont mind doubles and kins
+### ✦  i dont mind other mels/kins/cos
 - melone [jjba]
 
 ### 🍉 Kins + comforts
@@ -46,6 +48,7 @@
 - doppio [jjba]
 - tiziano [jjba]
 - kakyoin [jjba]
+- 
 
 comforts
 - mikitaka [jjba]
