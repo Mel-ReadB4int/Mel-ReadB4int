@@ -50,6 +50,7 @@
 - tiziano [jjba]
 - kakyoin [jjba]
 - narancia [jjba]
+- balthazar bratt [despicable me 3]
 
 comforts
 - mikitaka [jjba]
