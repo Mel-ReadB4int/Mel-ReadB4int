@@ -1,7 +1,7 @@
 ### Hi!! quick lil intro kinda ⬇︎
 
 -  this is mainly for PT lol
-- you may call me crumb or mel !
+- you may call me crumb,mel, or ko
 - **He/they** + neos (pls dont use she/her on me ty) // ~~Transmasc~~
 - i have TD so pls respect my boundaries ^^
 - green name/friend = you can ignore my td/srs
@@ -35,13 +35,14 @@
 - sanrio
 - cats <3
 ### 💫 Pls int!!
-- kin/irls/cos/like - cioccolata,doppio,diavolo,bruno,ghiaccio,risotto,fugo,mista,hazamada,okuyasu,koichi, mikitaka <3
+- kin/irls/cos/like - cioccolata,doppio,diavolo,bruno,ghiaccio,risotto,fugo,mista,hazamada,okuyasu,josuke, mikitaka <3
 - if you like art in general
 - mitski fans/fandom ily guys
 
 ### 💖 Irls !
-### ✦  i dont mind other mels/kins/cos
+### ✦  i dont mind doubles/kins/cos
 - melone [jjba]
+- koichi [jjba]
 
 ### 🍉 Kins + comforts
 - secco [jjba]
