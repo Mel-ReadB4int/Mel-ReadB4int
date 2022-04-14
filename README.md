@@ -24,6 +24,7 @@
 - proshippers
 - TD/TT touchers
 - dsmp fans/fandom
+- dick skins & voids (yall suck tbh.)
 - 13 yrs old and under
 
 ### 🎲 Interest ^^
