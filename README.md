@@ -4,7 +4,7 @@
 - you may call me crumb,mel, or ko
 - **He/they** + neos (pls dont use she/her on me ty) // ~~Transmasc~~
 - i have TD so pls respect my boundaries ^^
-- green name/friend = you can ignore my td/srs
+- green name/friend = you can ignore my td/gen
 
 ### 💻 BYI
 - i use caps and swear a lot
