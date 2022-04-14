@@ -24,7 +24,7 @@
 - proshippers
 - TD/TT touchers
 - dsmp fans/fandom
-- dick skins & voids (yall suck tbh.)
+-eyestrain,voids and dick skins (yall suck tbh.)
 - 13 yrs old and under
 
 ### 🎲 Interest ^^
