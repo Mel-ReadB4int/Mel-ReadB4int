@@ -24,7 +24,7 @@
 - proshippers
 - TD/TT touchers
 - dsmp fans/fandom
--eyestrain,voids and dick skins (yall suck tbh.)
+- eyestrain,voids and dick skins (yall suck tbh.)
 - 13 yrs old and under
 
 ### 🎲 Interest ^^
@@ -41,7 +41,7 @@
 - mitski fans/fandom ily guys
 
 ### 💖 Irls !
-### ✦  i dont mind doubles/kins/cos
+### ✦  i dont mind doubles/kins/cos 
 - melone [jjba]
 - koichi [jjba]
 
