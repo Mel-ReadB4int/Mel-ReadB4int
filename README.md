@@ -8,7 +8,7 @@
 ### 💻 BYI
 - i use caps and swear a lot
 - i'm also pretty childish and shy towards new ppl
-- I'm usually at the jojo area in the 18+ and safe server most of the time so feel free to int! i love making new friends^^
+- I'm usually at the jojo areas most of the time so feel free to int! i love making new friends^^
 - if i have dni / dniuf pls dont try interacting with me (unless i interact with you first or im friends with you)
 - crowns and kisses are fine but pls don't do them for a long period of time
 - do not copy my skins. you can take inspo tho (i'd appreciate it if you ask first)
@@ -37,7 +37,7 @@
 - art
 
 ### 💫 Pls int!!
-- kin/irls/cos/like - cioccolata,doppio,diavolo,bruno,ghiaccio,risotto,fugo,mista,hazamada,okuyasu,josuke, mikitaka <3
+- kin/irls/cos/like - cioccolata,secco,doppio,diavolo,bruno,ghiaccio,risotto,fugo,mista,hazamada,okuyasu,josuke, mikitaka <3
 - if you like art in general
 - mitski fans/fandom ily guys
 
@@ -47,6 +47,7 @@
 - koichi [jjba]
 
 ### 🍉 Kins + comforts
+kins
 - secco [jjba]
 - doppio [jjba]
 - tiziano [jjba]
