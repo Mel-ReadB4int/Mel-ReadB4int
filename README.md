@@ -2,10 +2,9 @@
 
 -  this is mainly for PT lol
 - you may call me crumb,mel, or ko
-- **He/they** + neos (pls dont use she/her on me ty) // ~~Transmasc~~
+- **He/they** + neos (pls dont use she/her on me ty) // trans // minor
 - i have TD so pls respect my boundaries ^^
-- green name/friend = you can ignore my td/gen
-
+- green name/friend = you can ignore my td/ge
 ### 💻 BYI
 - i use caps and swear a lot
 - i'm also pretty childish and shy towards new ppl
@@ -25,7 +24,7 @@
 - TD/TT touchers
 - dsmp fans/fandom
 - eyestrain,voids and dick skins (yall suck tbh.)
-- 13 yrs old and under
+- -13 yrs & 20+ yrs
 
 ### 🎲 Interest ^^
 - ponytown
@@ -35,13 +34,15 @@
 - mlp
 - sanrio
 - cats <3
+- art
+
 ### 💫 Pls int!!
 - kin/irls/cos/like - cioccolata,doppio,diavolo,bruno,ghiaccio,risotto,fugo,mista,hazamada,okuyasu,josuke, mikitaka <3
 - if you like art in general
 - mitski fans/fandom ily guys
 
 ### 💖 Irls !
-### ✦  i dont mind doubles/kins/cos 
+✦  i dont mind doubles/kins/cos 
 - melone [jjba]
 - koichi [jjba]
 
