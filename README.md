@@ -18,6 +18,7 @@
 - pls use tone tags around me if possible
 - **do not vent to me.** i have my own problems to deal with (unless your my friend)
 - if you dislike and of my kins & comforts feel free to hide me :>
+- try not to make alot of donut & pancake jokes around me, i find them annoying and unfunny. 
 
 ### 👾 DNI :D
 -  homophobic, biphobic, transphobic, lesbophobic, panphobic + etc.
