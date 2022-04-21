@@ -5,6 +5,7 @@
 - **He/they** + neos (pls dont use she/her on me ty) // trans // minor
 - i have TD so pls respect my boundaries ^^
 - green name/friend = you can ignore my td/ge
+
 ### 💻 BYI
 - i use caps and swear a lot
 - i'm also pretty childish and shy towards new ppl
@@ -40,11 +41,13 @@
 - kin/irls/cos/like - cioccolata,secco,doppio,diavolo,bruno,ghiaccio,risotto,fugo,mista,hazamada,okuyasu,josuke, mikitaka <3
 - if you like art in general
 - mitski fans/fandom ily guys
+- la squadra stans
 
 ### 💖 Irls !
 ✦  i dont mind doubles/kins/cos 
 - melone [jjba]
-- koichi [jjba]
+- koichi hirose [jjba]
+- keicho nijimura [jjba]
 
 ### 🍉 Kins + comforts
 kins
@@ -54,6 +57,7 @@ kins
 - kakyoin [jjba]
 - narancia [jjba]
 - balthazar bratt [despicable me 3]
+- pearl [steven universe]
 
 comforts
 - mikitaka [jjba]
