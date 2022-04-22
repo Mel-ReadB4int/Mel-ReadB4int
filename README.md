@@ -4,16 +4,16 @@
 - you may call me crumb,mel, or ko
 - **He/they** + neos (pls dont use she/her on me ty) // trans // minor
 - i have TD (touch discomfort) so pls respect my boundaries ^^
-- green name/friend = you can ignore my td/ge
+- green name/friend = you can ignore my td/g
 
 ### 💻 BYI
 - i use caps and swear a lot
 - i'm also pretty childish and shy towards new ppl
 - I'm usually at the jojo areas most of the time so feel free to int! i love making new friends^^
 - if i have dni / dniuf pls dont try interacting with me (unless i interact with you first or im friends with you)
-- crowns and kisses are fine but pls don't do them for a long period of time
-- do not copy my skins. you can take inspo tho (i'd appreciate it if you ask first)
-- if i dont respond right away its probably bcs im afk (feel free to whisper me tho!)
+- crowns and kisses are fine but pls don't do them for a long period of time, it makes me uncomfortable
+- do not copy my skins. you can take inspo tho (i'd appreciate it if you ask first!)
+- if i dont respond right away its probably bcs im afk (feel free to whisper me tho)
 - i use 'guys','bro' and 'girl' in a gender neutral way
 - pls use tone tags around me if possible
 - **do not vent to me.** i have my own problems to deal with (unless your my friend)
@@ -45,7 +45,7 @@
 - la squadra stans
 
 ### 💖 Irls !
-✦  i dont mind doubles/kins/cos 
+✦  i dont mind doubles/kins/cosplays (aslong as your not an asshole abt it)
 - melone [jjba]
 - koichi hirose [jjba]
 - keicho nijimura [jjba]
