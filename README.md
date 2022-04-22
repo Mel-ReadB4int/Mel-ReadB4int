@@ -3,7 +3,7 @@
 -  this is mainly for PT lol
 - you may call me crumb,mel, or ko
 - **He/they** + neos (pls dont use she/her on me ty) // trans // minor
-- i have TD so pls respect my boundaries ^^
+- i have TD (touch discomfort) so pls respect my boundaries ^^
 - green name/friend = you can ignore my td/ge
 
 ### 💻 BYI
