@@ -45,7 +45,7 @@
 - la squadra stans
 
 ### 💖 Irls !
-✦  i dont mind doubles/kins/cosplays (aslong as your not an asshole abt it)
+✦  i dont mind doubles/kins/cosplays at all! (aslong as your not an asshole abt it lol)
 - melone [jjba]
 - koichi hirose [jjba]
 - keicho nijimura [jjba]
