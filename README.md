@@ -5,6 +5,7 @@
 - **He/they** + neos (pls dont use she/her on me ty) // trans // Minor + Taken
 - i have TD (touch discomfort) so pls respect my boundaries ^^
 - green name/friend = you can ignore my td/g
+- avaradge part 4&5 enjoyer
 
 ### 💻 BYI
 - i use caps and swear a lot
