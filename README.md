@@ -2,7 +2,7 @@
 
 -  this is mainly for PT lol
 - you may call me crumb,mel, or ko
-- **He/they** + neos (pls dont use she/her on me ty) // trans // minor
+- **He/they** + neos (pls dont use she/her on me ty) // trans // Minor + Taken
 - i have TD (touch discomfort) so pls respect my boundaries ^^
 - green name/friend = you can ignore my td/g
 
@@ -61,6 +61,7 @@ kins
 - pearl [steven universe]
 
 comforts
+- ghiaccio (my partner)
 - mikitaka [jjba]
 - josuke [jjba]
 - risotto [jjba]
