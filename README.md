@@ -29,7 +29,9 @@
 - TD/TT touchers
 - dsmp fans/fandom
 - eyestrain,voids and dick skins (yall suck tbh.)
+- meowbahh skin/likers 
 - -13 yrs & 20+ yrs
+- if you ship giomis + more weird ships
 
 ### 🎲 Interest ^^
 - ponytown
@@ -39,11 +41,9 @@
 - mlp
 - sanrio
 - cats <3
-- art
 
 ### 💫 Pls int!!
-- kin/irls/cos/like - cioccolata,secco,doppio,diavolo,bruno,ghiaccio,risotto,fugo,mista,hazamada,okuyasu,josuke, mikitaka <3
-- if you like art in general
+- kin/irls/cos/likers - cioccolata,secco,doppio,diavolo,bruno,ghiaccio,risotto,fugo,mista,hazamada,okuyasu,josuke, mikitaka <3
 - mitski fans/fandom ily guys
 - la squadra stans
 
@@ -61,7 +61,6 @@ kins
 - kakyoin [jjba]
 - narancia [jjba]
 - balthazar bratt [despicable me 3]
-- pearl [steven universe]
 
 comforts
 - ghiaccio (my partner)
