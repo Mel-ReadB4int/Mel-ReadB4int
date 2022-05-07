@@ -22,6 +22,7 @@
 - if you dislike and of my kins & comforts feel free to hide me :>
 - try not to make alot of donut & pancake jokes around me, i find them annoying and unfunny. (if im uncomfortable i will probably hide you for abt 30 minutes)
 - **Do not make "omg its junko enoshima from danganronpa" jokes when im in my junko skin (the one from jjba), ESPECIALLY WHEN IM WITH TOSHI, it makes him very uncomfortable and its very annoying.**
+- i unironically like that one from hair (yes im talking abt the emo one), fell free to judge me now lol
 
 ### 👾 DNI :D
 -  homophobic, biphobic, transphobic, lesbophobic, panphobic + etc.
